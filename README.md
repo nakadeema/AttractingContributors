@@ -11,3 +11,5 @@ Let's share the anime song that hit you hardest!
 - Anytime Anywhere
 - Golden Ray
 - Miiro
+- Watch Me!
+- depature !

@@ -9,3 +9,4 @@ Let's share the anime song that hit you hardest!
 - A Cruel Angel's Thesis
 - FLY HIGH!!
 - Anytime Anywhere
+- Golden Ray

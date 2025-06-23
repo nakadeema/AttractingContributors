@@ -10,3 +10,4 @@
 - Doraemon (Doraemon)
 - Huohuo (Honkai: Star Rail)
 - Nobita-kun(Doraemon)
+- Gaimon(ONE PIECE)

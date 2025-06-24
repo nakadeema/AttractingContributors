@@ -11,3 +11,4 @@
 - Huohuo (Honkai: Star Rail)
 - Nobita-kun(Doraemon)
 - Gaimon(ONE PIECE)
+- Conan Edogawa(Detective Conan)

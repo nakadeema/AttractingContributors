@@ -13,3 +13,4 @@ Let's share the anime song that hit you hardest!
 - Miiro
 - Watch Me!
 - depature !
+- Kaiju

@@ -11,3 +11,4 @@
 - Huohuo (Honkai: Star Rail)
 - Nobita-kun(Doraemon)
 - Gaimon(ONE PIECE)
+- Frieren (Frieren: Beyond Journey's End)

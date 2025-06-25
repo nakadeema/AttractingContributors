@@ -11,6 +11,7 @@
 - Huohuo (Honkai: Star Rail)
 - Nobita-kun(Doraemon)
 - Gaimon(ONE PIECE)
+- katsuo(Sazae san)
 - Frieren (Frieren: Beyond Journey's End)
 - Conan Edogawa(Detective Conan)
 - Kunimi Tama (Heaven Burns Red)

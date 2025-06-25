@@ -11,5 +11,6 @@
 - Huohuo (Honkai: Star Rail)
 - Nobita-kun(Doraemon)
 - Gaimon(ONE PIECE)
+- Conan Edogawa(Detective Conan)
 - Kunimi Tama (Heaven Burns Red)
 - Saitama(One Punch Man)

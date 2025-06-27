@@ -16,3 +16,4 @@
 - Conan Edogawa(Detective Conan)
 - Kunimi Tama (Heaven Burns Red)
 - Saitama(One Punch Man)
+- Hakase(Nichijou)

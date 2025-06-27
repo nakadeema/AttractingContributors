@@ -22,3 +22,4 @@
 - Misaka Mikoto (A Certain Scientific Railgun)
 - Hoshizora Rin (LoveLive!)
 - Watanabe You (LoveLive! Sunshine!!)
+- Hakase(Nichijou)

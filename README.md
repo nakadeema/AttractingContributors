@@ -13,3 +13,60 @@
 >>>>>>> main
 Blizzard Entertainment
 - CAPCOM
+- Sunborn
+- YUZU SOFT
+- Yostar
+- WILLPLUS
+- Gaijin
+- Lump of Sugar
+- Team Shanghai Alice
+- Makura
+- Twilight Frontier
+- Lilian
+- FocasLens
+- Chuablesoft
+- AQUASTYLE
+- ALcot Honey Comb
+- Suikayasan
+- ALICESOFT
+- Chiyuudou
+- CandySoft
+- Coolier
+- Carol Works
+- Chelseasoft
+- CUBE
+- Curefull Base
+- FOUNDATION
+- Frontwing
+- Harmorise
+- HARU🌸KAZE
+- Hearts
+- HULOTTE
+- Lass
+- MANATSU_8
+- milimili:AMUSE CRAFT EROTICA
+- MintCUBE
+- MOONSTONE
+- Palette
+- Palette Qualia
+- PeasSoft
+- petitlinge
+- piriri!
+- Qoobrand
+- Recette
+- SAGAPLANETS
+- seal
+- seal-QUALIA
+- SkyFish
+- Sonora
+- Sugar Pot
+- SWEET&TEA
+- UnicoЯn
+- Us:track
+- Escu:de
+- Studio ryokucha
+- SMILE
+- noirsoft
+- Minato Soft
+- Jya no Michi wa Hebi Soft
+- Windmill
